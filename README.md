@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **crypto**
 
-- 📫 How to reach me **fialjose@gmail.com**
+- 📫 How to reach me **miguel_madureira@live.com.pt**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
